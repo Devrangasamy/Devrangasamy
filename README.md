@@ -14,4 +14,4 @@
 
 ⚡ Fun fact: I love to play football
 
-![NewGameAhagonUmikoProgrammingGIF](https://user-images.githubusercontent.com/87479231/185782980-0f8b03aa-9e1a-441d-9baa-a43f158264bd.gif)
+![NewGameAhagonUmikoProgrammingGIF](https://i.pinimg.com/originals/0b/8f/72/0b8f72501d1f843a1ddf67784a6e26f9.gif)
